@@ -1,6 +1,6 @@
 <div align="center">
 
-# 7 Best Ways to Jailbreak iOS 18.2 Online
+# 7 Best Ways to Jailbreak iOS 18.3 - iPhone 16 and older - Online
 
 </div>
 
